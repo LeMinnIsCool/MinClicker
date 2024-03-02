@@ -1,0 +1,1 @@
+Hello Welcome To MinClicker The App That Bypasses Any System To Prevent Autoclickers!
